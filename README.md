@@ -7,6 +7,8 @@ best website
 
 
 * [Delayn Graphic](https://delayn.com/) - delayn.com
+* [آموزش افتر افکت](https://delayn.com/after-effects-training/) - delayn.com
+* [آموزش طراحی لوگو](https://delayn.com/how-to-logo-design/) - delayn.com
 * [Adobe After Effects training](https://delayn.com/after-effects-training/) - delayn.com
 * [Logo design training](https://delayn.com/how-to-logo-design/) - delayn.com
  
